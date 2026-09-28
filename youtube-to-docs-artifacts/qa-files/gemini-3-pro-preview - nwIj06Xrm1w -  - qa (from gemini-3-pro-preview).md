@@ -1,0 +1,43 @@
+Based on the transcript provided, here are the extracted questions and answers.
+
+| question number | questioner(s) | question | responder(s) | answer | timestamp | timestamp url |
+|---|---|---|---|---|---|---|
+| 1 | Bao The Whale | So, like do you die and then you get like CPR'd back? Is that how it works? | CodeMiko | Um, I'm supposed to have the guest decide the punishment... but you could like literally say do a jumping jack or like you know... it could be something so stupid. | 00:00:14 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=14) |
+| 2 | CodeMiko | Any specific fandom? | Bao The Whale | Oo. Okay. So, Star Wars. I have many, many fandoms. However, if I'm too specific, people are going to find me... | 00:01:00 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=60) |
+| 3 | Bao The Whale | Do you know how to start a shared chat? | CodeMiko | I do. | 00:01:40 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=100) |
+| 4 | Bao The Whale | Are you impressed? [by the vomiting story] | CodeMiko | Yes, dude. I think I got over stimulated. | 00:02:51 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=171) |
+| 5 | Bao The Whale | What does your chat do when you are AFK? | CodeMiko | Um, they just talk about how loud I am on the microphone. | 00:03:45 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=225) |
+| 6 | CodeMiko | Wait, can you piss quietly or is it like the racehorse gene runs too strong? | Bao The Whale | I think the racehorse gene runs too strong, man. Like I just be frying that chicken. | 00:04:30 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=270) |
+| 7 | Bao The Whale | Wait, you cut out. What'd you say? Did you say delicious? | CodeMiko | No, no, no, no, no... I don't have a piss fetish... | 00:05:14 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=314) |
+| 8 | CodeMiko | Hey, what's the worst date you've ever had? | Bao The Whale | Um. Uh, probably when the dude shit his pants and walked out. | 00:06:27 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=387) |
+| 9 | CodeMiko | Wait, what was the setting? What's the setting when he shit his pants? | Bao The Whale | Um, getting tattooed in the tattoo shop. | 00:06:39 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=399) |
+| 10 | CodeMiko | So, did he like play it off? Was he like, "I got to go." Or was he like, "No, I straight shitted right now." | Bao The Whale | Um not even that long into the tattoo... he's like, "It gotta go." Goes out the door. I never saw him again. | 00:07:02 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=422) |
+| 11 | Bao The Whale | Is your pain tolerance high? | CodeMiko | Um it I would say it's in the middle. | 00:08:05 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=485) |
+| 12 | CodeMiko | Do you find that for yourself as well? [That pain feels good until it's severe] | Bao The Whale | No. I think pain sucks. | 00:09:25 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=565) |
+| 13 | Bao The Whale | You want to know how a tattoo feels like? | CodeMiko | What? What? What? Yeah, I'm curious. | 00:09:47 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=587) |
+| 14 | Bao The Whale | So, would you like that? [Scraping a tack on skin] | CodeMiko | Can you get a tattoo, but like no color? | 00:10:09 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=609) |
+| 15 | CodeMiko | Can you get a tattoo, but like no color? ... like what if you put a tattoo gun on your arm, but you didn't put any ink with it? | Bao The Whale | You would just be getting stabbed for no reason. | 00:10:12 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=612) |
+| 16 | CodeMiko | Would that even leave a mark? I'm so curious. Would that like leave a scar? | Bao The Whale | It might leave a scar. | 00:10:30 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=630) |
+| 17 | CodeMiko | Can you get a tattoo gun and do a tattoo yourself? | Bao The Whale | Yeah, people tattoo themselves all the time. | 00:10:43 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=643) |
+| 18 | CodeMiko | And um do you have a shock collar? | Bao The Whale | I do. | 00:10:54 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=654) |
+| 19 | CodeMiko | Did you think it felt good? | Bao The Whale | No. | 00:11:00 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=660) |
+| 20 | CodeMiko | Do you think I have an overarchingly dominant personality so far? | Bao The Whale | Uh chat. | 00:12:05 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=725) |
+| 21 | CodeMiko | You want me to do like a little dominant thing? | Bao The Whale | Okay. Okay... Here we go. | 00:12:41 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=761) |
+| 22 | CodeMiko | What's a top say? | Bao The Whale | A top doesn't say "what's a top say". | 00:12:58 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=778) |
+| 23 | CodeMiko | Okay. Wait. Is two yes pain or two no pain? | Bao The Whale | Two is no pain. Pain sucks. One is yes, pain that feels good. | 00:14:15 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=855) |
+| 24 | CodeMiko | Can I ask you a question? ... [Scenario describing a partner watching their boyfriend with others for non-humiliation reasons] Is that cucking? | Bao The Whale | Yes, it's cucking. If you like to watch, you like the cuckery. | 00:14:23 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=863) |
+| 25 | CodeMiko | But what if... you're not humiliated? Like you're comfortable with it. You're like, I'm chilling. | Bao The Whale | I mean, I would just say that's a power cuck. | 00:15:18 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=918) |
+| 26 | CodeMiko | Then you could reasonably say that a power cuck is um therefore based. Would you agree with that point? | Bao The Whale | I mean, they're getting the porn IRL, you know, it's not locked behind the screen. | 00:16:05 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=965) |
+| 27 | CodeMiko | Can you have sex on stage if you're doing a play? Is that legal? | Bao The Whale | Yeah, it's called uh like an adult... show. | 00:16:59 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1019) |
+| 28 | CodeMiko | Is that the same thing? [Porn theater] | Bao The Whale | Certain places... It's time. Have you ever seen one? | 00:17:30 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1050) |
+| 29 | Bao The Whale | Have you ever seen one? [Porn theater] | CodeMiko | Uh, I've always almost seen one and Oh, something gets in the way. | 00:17:35 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1055) |
+| 30 | CodeMiko | Are you a Star Wars enjoyer? | Bao The Whale | I am the based uh Star Wars enjoyer. Yeah. | 00:17:58 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1078) |
+| 31 | Bao The Whale | Have you ever heard of Homestuck? | CodeMiko | I've heard of Homestuck. | 00:18:45 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1125) |
+| 32 | CodeMiko | Do you swallow without thinking about it? | Bao The Whale | I have no problem swallowing. | 00:20:50 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1250) |
+| 33 | CodeMiko | Did you ever think about lollipops are just drinking your own spit? | Bao The Whale | I mean, yes. | 00:21:20 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1280) |
+| 34 | CodeMiko | Do you think pee is gross? | Bao The Whale | In most circumstances. Yes. | 00:22:02 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1322) |
+| 35 | CodeMiko | Imagine... someone peed a little puddle on the floor and you splash around in it with your hand... So, the second one is grosser? | Bao The Whale | Yes. I'll tell you why. | 00:22:12 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1332) |
+| 36 | CodeMiko | Is squirt piss? | Bao The Whale | Yes. Yes. Squirting is piss. | 00:22:59 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1379) |
+| 37 | Bao The Whale | Like a CPAP or what? [Referring to the device for macroglossia] | CodeMiko | Mm- It's like a thing that like um prevents me from... I have to put balls in my mouth to sleep. | 00:24:58 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1498) |
+| 38 | Bao The Whale | So you have a giant tongue, you said, right? | CodeMiko | Yeah. | 00:26:40 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1600) |
+| 39 | Bao The Whale | So you be kissing with that tongue? Tongue first with that tongue? | CodeMiko | Whoa. Dude, he must have been so traumatized, dude. He was like, "Oh, I can't wait to go for my first kiss." And then I [__] hit him with a semi-truck of tongues... | 00:26:44 | [Link](https://www.youtube.com/watch?v=nwIj06Xrm1w&t=1604) |

@@ -1,0 +1,1 @@
+In this chaotic and raunchy dating-show style conversation, two streamers bond over a wide array of bizarre topics, ranging from writing pornographic fan fiction and embarrassing medical mishaps to explicit bathroom habits and the sexual implications of having a medically large tongue.
